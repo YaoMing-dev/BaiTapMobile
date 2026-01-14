@@ -5,4 +5,4 @@ Có thể cuộn ngang bằng nút cuộn chuột - hoặc kéo thả chuột đ
 
 
 
-I uploaded a vid through Google Drive for helping you make a quick check : https://drive.google.com/file/d/1trjZmPX9gNJON7qXiHnaCrgjQhRnGObz/view?usp=sharing 
+I uploaded a vid through Google Drive for helping you make a quick check : https://drive.google.com/file/d/1W2px0CVOcBElJJuU08dDDo4u5NQ7rJao/view?usp=sharing
